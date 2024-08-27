@@ -5,6 +5,7 @@ I'm an enthusiastic and skilled professional with a deep interest in Data Scienc
 📫 Get in Touch
 
 Email: vigneshwarans080999@gmail.com
+Phone No: +91-7397363168
 
 🔥 Areas of Expertise
 
